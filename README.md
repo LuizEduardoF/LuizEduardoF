@@ -1,7 +1,7 @@
 ### Hi there 👋
 
-My Name is Luiz Eduardo Ferreira Ansiliero.
-I'm Living in Brazil on Paraná.
+**My Name is Luiz Eduardo Ferreira Ansiliero.
+I'm Living in Brazil on Paraná.**
 
 - 🔭 I’m currently working on: nothing
 - 🌱 I’m currently learning: nothing
