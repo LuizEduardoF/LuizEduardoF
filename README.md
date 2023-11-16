@@ -11,4 +11,4 @@ I'm Living in Brazil on Paraná.**
 - 📫 How to reach me: on discord.
 - ⚡ Fun fact: I like to play Dead by Daylight and Hollow knight.
 
-![A commum day:] (https://media.tenor.com/sY426q87UKcAAAAC/frustrated-upset.gif)
+!(https://media.tenor.com/sY426q87UKcAAAAC/frustrated-upset.gif)
